@@ -1,6 +1,3 @@
-testing out my vim command i'm testing out my vim command i'm testing  
-out my vim command.  
-  
 I gained an IRC beta tester for my program yesterday--my first ever  
 piece of open source collaboration!--I'll gain some more tomorrow,  
 too. After that I'll finish with this, as it's taken up too much of my  
@@ -12,4 +9,6 @@ follow my philosophical requirements for what I code then I'm not
 happy.  Nevertheless, once, on a training day, I was happy coding on  
 command.  
   
+here some more test which i am merely using to test out my vim script.  
+well it's more a map, really.  
 
