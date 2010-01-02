@@ -6,6 +6,6 @@ time already, time I should be spending on other tasks.
 If I could earn a living coding like this, I would.  But I'm too much  
 of a zealot.  I have too many emotional requirments!  If I don't  
 follow my philosophical requirements for what I code then I'm not  
-happy.  Once, however, on a training day, I was happy coding on  
+happy.  Nevertheless, once, on a training day, I was happy coding on  
 command.  
 
