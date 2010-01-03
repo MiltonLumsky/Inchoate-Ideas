@@ -6,7 +6,7 @@ tomorrow, too.
 If I could earn a living coding like this, I would.  But I'm too much of a  
 zealot.  I have too many emotional requirments!  I'm rarely happy coding when I  
 fail to follow my philosophical requirements, when I fail to abide by the  
-tenets of Unix. And in work, one can rarely follow such.   
+tenets of Unix.  And in work, I'll rarely be able to follow such.   
   
 Even so, this has not always been the case.    
   
