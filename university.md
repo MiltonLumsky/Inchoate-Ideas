@@ -17,9 +17,9 @@ That inclination to return to academia's bosom, as the article states,
 does come from my uneasy transition to 9-5 workdays. My work was  
 praised in academia, but now the culture and tasks of the private  
 sector do not lead to the same level of praise, or even the present me  
-with tasks on which I was previously praised. Even though I am  
-inclined towards a return to academia, my recent experience has also  
-made me a little cautious.  
+with the kind of tasks on which I was previously praised. Even though  
+I am inclined towards a return to academia, my recent experience has  
+also made me a little cautious.  
   
 Now I've worked, and stopped living off government handouts, I've no  
 longer been able to see my future in a fuzzy, "it'll be okay somehow",  
@@ -33,8 +33,9 @@ And of course, universities will be more than willing to take a
 student willing to pay, who may well be suitable for low paid work in  
 the future, aiding the department, willing to ignore the scarcity of  
 opportunies in academia for them. But the article, as those on  
-ycombinator news commented http://news.ycombinator.com/item?id=1030437  
-does ignore a few benefits of graduate or PHd programmes.  
+ycombinator news commented  
+http://news.ycombinator.com/item?id=1030437, does ignore a few  
+benefits of graduate or PHd programmes.  
   
   
   
