@@ -1,0 +1,42 @@
+I read this pertinent article earlier  
+http://chronicle.com/article/Graduate-School-in-the-Huma/44846/ ,  
+which lamented the false beliefs many graduate students have: that  
+they, like the thousands of other applicants, will gain a tenured  
+position in a now diminuishing number of roles; that, unlike all those  
+others that are also encouraged and have achieved good grades, will  
+succeed.  
+  
+I have to admit those are the same beliefs I have. These beliefs are  
+to a certain extent necessary, however. Without that self-belief, even  
+if somewhat over-optimistic, people fail to attempt, and if they fail  
+to attempt they are already doomed to failure. But without caution,  
+especially if you are inclined to rushing towards the bosom of  
+academia, you may be in for a particularlly bad fall.  
+  
+That inclination to return to academia's bosom, as the article states,  
+does come from my uneasy transition to 9-5 workdays. My work was  
+praised in academia, but now the culture and tasks of the private  
+sector do not lead to the same level of praise, or even the present me  
+with tasks on which I was previously praised. Even though I am  
+inclined towards a return to academia, my recent experience has also  
+made me a little cautious.  
+  
+Now I've worked, and stopped living off government handouts, I've no  
+longer been able to see my future in a fuzzy, "it'll be okay somehow",  
+perspective. I've had to ask myself: who wants the skills you have,  
+who'll pay you for them, can you live off that? Even though these are  
+in my mind when I think of returning to academia, the emotional appeal  
+of praise in an environment I am apt at excelling in still tempts me  
+to say: "fuck it, a Masters in Politics--what could go wrong?"  
+  
+And of course, universities will be more than willing to take a  
+student willing to pay, who may well be suitable for low paid work in  
+the future, aiding the department, willing to ignore the scarcity of  
+opportunies in academia for them. But the article, as those on  
+ycombinator news commented http://news.ycombinator.com/item?id=1030437  
+does ignore a few benefits of graduate or PHd programmes.  
+  
+  
+  
+  
+
